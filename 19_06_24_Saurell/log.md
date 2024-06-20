@@ -116,3 +116,21 @@ Vabbè, noi inseriamo il ripristino e mandiamo spiegazioni dettagliate all'owner
 
 Grazie di averci fatto scoprire questo magnifico posto. TFTC
 Torniamo indietro che ha iniziato a piovere, ma riusciamo a giungere al'auto non troppo bagnati. 
+
+## GCAEMKP
+
+16/10/2023: "FTS, vediamo se riesco anche a fare FTF."
+Poi una passeggiata dove arrivato a GZ rimango fregato e deluso dalla troppa neve.
+Oggi è il giorno giusto, accuratamente descritto da [questa storia](https://github.com/lory9894/geocaches_log/blob/main/19_06_24_Saurell/log.md) che ha inizio con [quesya cache (GC8WNE9)](https://coord.info/GL1CBGED1).
+Ma prima di iniziare la giornata c'è ancora una cosa da fare. Andarmi a prendere l'FTF.
+
+Purtroppo la storia del ritrovamento è poco interessante, piccola deviazione prima di arrivare dove abbiamo parcheggiato, pochi minuti di cammino, ritrovamento senza neve, varie esultanze, rientro in auto, fine.
+
+Però l'avventura di questo ritrovamento non si è svolta oggi, si è svolta nei mesi precedenti.
+"Quando ti metterai in viaggio per Itaca devi augurarti che la strada sia lunga, fertile in avventure ed esperienze"
+
+Il geocaching a me continua a ricordare questa poesia ed infondo è per questo che continuo a giocare con la "mia" filosofia molto intransigente.
+Le sconfitte ed i DNF sul momento danno dispiacere, verrebbe da dire "massì loggo comunque found", ma farlo (a parte il fatto che sarebbe scorretto) vorrebbe dire privarsi di una avventura più grande e completa, che magari avrà conclusione mesi e mesi dopo.
+
+Perciò TFTC, un grande grazie a Giacomo, non solo per la cache che comunque è bella, ma per l'avventura che mi ha permesso di compiere.
+Se il giorno 13 gennaio avessi trovato questa cache non credo sarebbe cosi memorabile per me. 
