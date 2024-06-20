@@ -1,8 +1,3 @@
-## Preambolo
-Storia completa qui
-
-TFTC, Prosegue a 
-
 ## GC8WNE9
 
 Primo tentativo serio di camminata da dopo l'operazione al ginocchio.
@@ -40,7 +35,7 @@ Fa molto ridere soprattutto guardare i cartelli, di solito alti poco più di un 
 
 Dopo una puntata all'ovovia per una foto ricordo da mandare ai miei genitori scendiamo di dislivello fino alla cache.
 
-<img src="images/canalone_saurell.jpg" width="50%" >
+<img src="images/selfie_rocca_aquila.jpg" width="50%" >
 
 Le coordinate sono precise e la foto spoiler eloquente, ma noi siamo presi da cecità temporanea e non troviamo assolutamente nulla per diversi minuti.
 Non riusciamo nemmeno a far combaciare la foto spoiler con l'ambiente circostante.
