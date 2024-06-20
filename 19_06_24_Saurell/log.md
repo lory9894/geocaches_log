@@ -60,7 +60,7 @@ Sulla strada di discesa trovo abbandonato un paletto di "pericolo" di quelli usa
 Per quanto mi piaccia tale sport e lo pratichi da anni sono sempre stato molto critico dell'abuso compiuto dagli impianti sciistici. Questi deturpano la montagna ed hanno uno scarso rispetto dell'ambiente, ad esempio abbandonando senza cura i loro rifiuti sui pendii.
 Chè dire? ultimamente sto abbandonando questa disciplina proprio per non finanziare più un business che sfrutta in maniera così irrispettosa la montagna.
 
-<img src="images/bandiera.jpg" width="50%" >
+<img src="images/bandiera.png" width="50%" >
 
 ## GC8WNDR
 Torniamo sul versante italiano e passiamo per questa particolare struttura, la cosa più notevole è la neve che in questo periodo è ancora presente ed ancora profonda, ma senza troppa fatica raggiungiamo GZ,
