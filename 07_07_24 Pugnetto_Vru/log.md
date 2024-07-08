@@ -16,7 +16,7 @@ Volatili? cinghiali? roditori? boh, per stare più tranquilli azzardiamo due div
 La notte passa, senza visite da parte dei "Gibboni", ed alle 7:00 siamo svegli (stranissimo, in tenda di solito la luce mi sveglia alle 5:00). Colazione dei campioni (pancacke con il miele), smontiamo la tenda e via verso la grotta.
 
 # Pugnetto
-Arriviamo con mezz'ora di anticipo eppure la guida () è già lì. Un ragazzo che ha l'aria di essere molto esperto, ma che si rivela essere anche molto affabile e simpatico. Nell'attesa degli altri partecipanti parliamo di altre grotte e delle competenze necessarie per affrontarle.
+Arriviamo con mezz'ora di anticipo eppure la guida (Walter) è già lì. Un ragazzo che ha l'aria di essere molto esperto, ma che si rivela essere anche molto affabile e simpatico. Nell'attesa degli altri partecipanti parliamo di altre grotte e delle competenze necessarie per affrontarle.
 Poi finalmente siamo tutti, un gruppetto di 10 persone, e ci infiliamo in grotta.
 
 So bene che questa sarebbe la parte più interessante del log, la grotta, l'avventura, cioè che abbiamo imparato e vissuto. Però è difficilissimo riproporre a parole l'esperienza, andate e fatela.
@@ -24,18 +24,24 @@ L' esperienza è meno "avventurosa" del previsto, ma molto più interessante. La
 Nota particolare è "l'esperienza di buio" che ci propone la guida, spegnendo le luci e facendoci capire quanto sia buio in una grotta. Poi ci racconta di un suo amico biologo che entrato in questa stessa grotta ha esaurito il carburo ed è dovuto tornare a tentoni all'uscita.
 Insomma, tra dettagli geologici, storie di pipistrelli e battute la guida ha reso l'esperienza interessante ed indimenticabile, forse meno avventurosa, ma indimenticabile.
 
-In qualche modo riusciamo a trovare la cache senza che nessuno ci noti, a parte una signora che per assurdo sapeva già del geocaching ed a cui non abbiamo dovuto giustificare nulla. TFTC.
+In qualche modo riusciamo a trovare la cache senza che nessuno ci noti, a parte una signora che per assurdo sapeva già del geocaching ed a cui non abbiamo dovuto giustificare nulla. TFTC. lascio un FP
+
+<img src="img/grotta.jpeg" width="45%" >
+<img src="img/gruppo.jpeg" width="45%" >
 
 # Sentiero per santa cristina #1
 Dopo la grotta abbiamo tutto il pomeriggio libero, così lo dedichiamo a questa passeggiata che avevamo già adocchiato qualche settimana fa.
 Parcheggiamo al waypoint ed iniziamo a salire, un micio di meno di un anno della borgata mostra uno spiccato interesse per il bastone da trekking di JohnRain92 e per mezzo chilometro ci segue, aggredendo la punta come fosse una preda, fino a che non si stanca e ci abbandona.
 
+<img src="img/gatto.jpeg" width=50%>
 Saliamo su per un sentiero che non esiste. rovi, altri rovi, ortiche.
 Giungiamo ad un ponte crollato e lo aggiriamo, poi finalmente a GZ. La cache si trova subito, firmiamo e riposizioniamo.
-Questa cache segna la fine del tratto "giungla" ed all'andata ha dato qualche problema, ma è stato al ritorno che ha iniziato a mostrare i denti.
+Questa cache segna la fine del tratto "giungla" ed all'andata ha dato qualche problema, ma è stato al ritorno che ha iniziato a mostrare i denti, o meglio le spine.
 Quello che all'andata era stato un sentiero difficoltoso al ritorno è stata una maledetta trappola che al mio amico ha causato un enorme livido sulla tibia (JohnRain92, dovevi continuare a prendere a calci i pali) ed a me una puntura di qualche strana pianta che mi ha causato un bruttissimo rush cutaneo (che fortunatamente è passato in poche ore).
 
-Insomma, torniamo alla macchina con le balle girate, ma contenti della giornate e delle belle cache.
+Insomma, torniamo alla macchina con le balle girate, e con strani gonfiori, ma contenti della giornate e delle belle cache.
+
+<img src="img/ortica.jpeg" width=50%>
 
 # Sentiero per santa cristina #2
 Superato il tratto di giungla del #1, decidiamo di fare anche il #2. Il sentiero è molto più semplice, e qui inizia a diventare spettacolare. La scalinata descritta dal listing è veramente fiabesca ed anche la vista è molto bella.
@@ -53,3 +59,20 @@ Interessantissima anche la storia della chiesetta, secondo me tutte le costruzio
 TFTC, grazie per averci fatto scoprire questo posto, vale un FP per la vista (che non abbiamo visto) e per la passeggiata in sè.
 
 # Ex lost place, Vrù
+Questa giornata come le nostre forze non ha fine (Storia della giornata completa disponibile [qui](https://github.com/lory9894/geocaches_log/blob/main/07_07_24%20Pugnetto_Vru/log.md)). Siamo in zona, facciamo ancora questa cache!
+
+La multi non viene svolta come si dovrebbe, dato che al posto di andare a GZ iniziamo a vagare per Vrù, curiosando.
+Vediamo una indicazione alla "altalena gigante" e non possiamo non andare a vedere, rimarremo delusi dato che non è mica tanto gigante....
+Da lì mi rendo conto che scendere a GZ è uno spreco di tempo, la cache è sicuramente in un altro punto più avanti nel sentiero, così proseguiamo. facendo attenzione a riconoscere la foto spoiler.
+In realtà JohnRain92 l'ha già trovata, ma se ne sta ben zitto (gentilmente) e mi lascia il divertimento.
+Così l'accordo diventa "se superiamo GZ ti avverto".
+
+camminando sul sentiero riconosco GZ e trovo presto la cache, davanti a due lumache che si stanno accoppiando.
+
+Bellissimo posto Vrù, molto particolare e molto curato.
+Tornato a casa ottengo testimonianza di prima mano del luogo prima che diventasse una EX-lost place.
+Infatti salta fuori che i miei genitori si sono conosciuti proprio lì a casa di un amico in comune che aveva una delle casette di pietra e la usava d'estate per le vacanze.
+Il periodo era proprio quello pre-abbandono, quando il posto era ancora abitato ma si stava velocemente svuotando.
+TFTC.
+
+# La mole d Rivin
