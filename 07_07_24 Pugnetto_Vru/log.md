@@ -76,3 +76,15 @@ Il periodo era proprio quello pre-abbandono, quando il posto era ancora abitato 
 TFTC.
 
 # La mole d Rivin
+Dopo il giro a Vrù (raccontato insieme al resto della giornata [qui](https://github.com/lory9894/geocaches_log/blob/main/07_07_24%20Pugnetto_Vru/log.md)) ci dirigiamo verso questa cache.
+
+Le nuvole hanno lasciato spazio al sole e la giornata è calda, ma la salita è comunque piacevole. Dal nome della cache sapevo più o meno cosa aspettarmi, ed un cartello a Vrù mi aveva già dato un'idea più precisa, ma comunque è una bella sorpresa. La torre di Pisa qui? 
+Inoltre tutto il resto di Rivin è affascinante allo stesso modo. ci sono molte altre sculture e costruzioni, e la vista è molto bella.
+
+Arrivato in cima mi viene in mente l'idea iconica. Tanto famose le foto con la gente che finge di tenere la torre di Pisa, perchè non fare una in cui reggo veramente la torre di Pisa? fiero della mia idea mi metto a cercare la cache.
+
+Cache che purtroppo non c'è.
+L'indizio è chiaro e cerchiamo ovunque. nulla. Nemmeno il ripristino di Filippo pare esserci.
+Sarebbe un peccato perdere questa cache, il posto è veramente bello e la cache è ben vecchia. sperando di fare cosa gradita facciamo un ripristino che sia coerente con lo spoiler (panchina).
+TFTC, grazie per averci fatto scoprire il luogo.
+<img src="img/pisa.jpeg">
