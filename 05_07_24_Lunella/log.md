@@ -28,6 +28,7 @@ TFTC, lascio FP per la bella camminata.
 Continua a [punta Cruvin](https://coord.info/GL1CP89A5)
 # Punta Cruvin
 Storia completa della giornata [qui](https://github.com/lory9894/geocaches_log/blob/main/05_07_24_Lunella/log.md)
+Log precedente a [punta Lunella](https://coord.info/GL1CP7ZGY)
 
 Questa cache non era strettamente in programma, ma 3 motivi mi hanno spinto a farla.
 1 fa fresco ed ho ancora tantissima acqua.
@@ -55,7 +56,6 @@ Ritrovo il sentiero e scendo ad una lentezza esasperante, arrivo al sentiero (qu
 Che avventura! mi sono divertito ma sono anche molto contento di scendere, finalmente.
 TFTC. Grazie per questa cache ma sopratutto per questo giro, che credo di aver svolto esattamente come consigliato dal owner (Lunella, Cruvin, sorgente). COnsiglio a tutti di farlo, è faticoso ma molto appagante. 
 
-Log precedente a [punta Lunella](https://coord.info/GL1CP7ZGY)
 
 # La fonte nascosta
 Dopo aver trovato Punta Cruvin, mi dirigo qui alla fonte. 
