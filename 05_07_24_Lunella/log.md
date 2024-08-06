@@ -19,6 +19,8 @@ Il paesaggio è stupendo, la pietraia è affascinante, ed il canalone a nord ha 
 
 Arrivo all'attacco finale dove mi aspetta un po' di facile arrampicata. Di nuovo nebbione, vedo la cima solo quando sono a 100m da essa.
 Così dopo 3h20 di cammino arrivo in cima, dove firmo il libro di vetta. Bellissima l'idea di scrivere lì le coordinate, spesso nei libri di vetta si trovano storie toccanti ed interessanti, questo è un incentivo a leggerli al posto che firmarli solo.
+Il tubo è veramente duro, ci sono anche dei pezzi di metallo lasciati apposta lì.
+Inoltre a causa del vento che si sta alzando faccio anche uso del secondo principio di Archimede *"se pisci controvento ti pisci sul piede"*. Ah no? non era così`?
 <img src="img/cima_lunella.jpg" width=50%>
 
 Mangio in cima e vado alla ricerca della cache,l'owner è stato clemente e non è troppo distante. Nonostante l'indizio generico la trovo subito grazie alle coordinate precisissime.
@@ -41,7 +43,7 @@ Non credo nella foto si noti ma vedo questa piccola croce, che in realtà è la 
 Guardo la cartina e questa mi mostra che tra me e Cruvin c'è un piccolo colle, che però nella realtà non esiste.
 Quindi: ho visto la croce, c'è un colle sulla mappa, la nebbia mi impedisce di vedere la cima di questo fantomatico colle mi convinco che la croce sia la cima di Cruvin e che quello che ho davanti sia il colle.
 Decido di aggirare il colle da sud e proseguire verso la croce, ma a metà strada noto degli ometti segnavia. 
-Aspetta, perchè qui c'è un sentiero? prendo il telefono e faccio un controllo con il GPS, mi rendo conto di essere finito a sud di Cruvin e di essere sull'altro sentiero.
+Aspetta, perchè qui c'è un sentiero? prendo il telefono e faccio un controllo con il GPS, mi rendo conto di essere finito a sud di Cruvin e di essere sulla traccia sud.
 <img src="img/cresta_cruvin.jpg" width=50%>
 
 Poco male, sono sceso di 100m e devo risalirli, ma questo errore mi mostra punta Lunella da un'altra prospettiva, che prima, a causa della nebbia, non avevo potuto apprezzare.
@@ -50,7 +52,7 @@ Poco male, sono sceso di 100m e devo risalirli, ma questo errore mi mostra punta
 Così risalgo e raggiungo la cima, dove trovo la cache facilmente, anzi, mi ci siedo sopra. Poi guardo il telefono e noto di essere esattamente a GZ.
 Firmo la cache e riparto, ma nel frattempo la nebbia è diventata parecchio fitta. la visibilità è ridotta a 10m, a tratti 5.
 <img src="img/nebbia.png" width=50%>
-Questo mi fa completamente perdere la traccia, che già di per sè non è chiarissimo, e mi ritrovo a scendere per un canalone.
+Questo mi fa completamente perdere la traccia, che già di per sè non è chiarissima, e mi ritrovo a scendere per un canalone.
 Qui l'erba bagnata mi fa fare 2 scivoloni, di cui uno abbastanza brutto, ma fortunatamente non mi faccio male.
 Ritrovo il sentiero e scendo ad una lentezza esasperante, arrivo al sentiero (quello verso la Lunella) dopo le 15:00, in pratica un'ora per scendere 300m di dislivello.
 Che avventura! mi sono divertito ma sono anche molto contento di scendere, finalmente.
