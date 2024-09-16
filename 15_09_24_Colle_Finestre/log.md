@@ -1,4 +1,5 @@
 # HABT
+[log completo della giornata qui](https://github.com/lory9894/geocaches_log/blob/main/15_09_24_Colle_Finestre/log.md)
 Inizia anche per me l'avventura di HABT.
 Inizia ben prima di quando arrivo al colle delle finestre.
 
@@ -43,6 +44,8 @@ Firmo e con molta attenzione riposiziono. Oggi a casa mentre scrivo questo log h
 
 Invece GZ della #18 è invaso da mucche. Sono parecchio abituate a vedere umani ma comunque non gradiscono un ciclista che si piazza vicino agli abbeveratoi.
 
+<img src="img/mucche.jpg" width = 50%>
+
 Finisco il giro e sono di nuovo all'auto, ma non sono stanco. 
 O almeno, sono stanco ma non quanto vorrei, ho abbastanza energie per affrontare qualcos'altro, cosa? Il Pelouxe? sembra bello impegnativo! però un FTF..... vabbè ci ragiono mentre vado a loggare la cache del colle delle finestre
 
@@ -50,9 +53,38 @@ In sostanza giro bellissimo, lascio un FP sulla cache che più mi è piaciuta, m
 Io l'ho affrontato male, non fa per me fare i trail in bici ed inoltre la bici era veramente inadatta.
 Non credo lo rifarei, potrei invece pensare di rifarlo con la MTB, questa volta senza dovermi preoccupare delle caches.
 In ogni caso vista spettacolare, TFTC e TFTT (thank for the trail).
+
 # Colle delle Finestre
+[log completo della giornata qui](https://github.com/lory9894/geocaches_log/blob/main/15_09_24_Colle_Finestre/log.md)
+Finito HABT sono in questa situazione di dubbio, vado o non vado a fare FTF alla cima [Pelouxe](https://coord.info/GL1D0X4FN)?
+Ciò che più mi ostacola e la condizione del mio ginocchio, ultimamente quando salgo o scendo le scale fa male e mi sto impegnando a stare a riposo finchè non si riprende.
+Così questa cache fa un pò da "test drive", il giro in bici mi ha stressato il ginocchio? pare di no, arrivo senza alcun fastidio a GZ, firmo dopo un brevissimo boulder e ritorno all'auto. 
+TFTC
 
 # Pelouxe
+[log completo della giornata qui](https://github.com/lory9894/geocaches_log/blob/main/15_09_24_Colle_Finestre/log.md)
+Salendo al colle delle Finestre mi era subito caduto l'occhio su questa particolare cima, però ero salito su con un altro obbiettivo e sopratutto non dovrei fare dislivello per evitare di infiammare ulteriormente il ginocchio.
 
+Finito HABT e appurato il fatto che sto sostanzialmente bene guardo verso l'alto.
+Da sotto non sembra affatto così faticosa, non si percepisce la verticalità di questo pendio, che si può invece ben notare salendo al monte Pintas (segendo la strada militare insomma)
+Non dovrei sforzare il ginocchio.... ma sono solo 600m, e poi non ho male, ma poi c'è un FTF in ballo.
+Tutte scuse, sopratutto quella dell'FTF dato che tra 15 giorni chiuderanno la strada.
 
-[log completo della giornata qui]()
+In ogni caso mi convinco a salire, prendo la strada più diretta non per scelta, ma perchè non ho il tempo di fare il giro lungo e soprattutto non voglio stressare il ginocchio più del dovuto (invece scendere da un pendio con circa 45% di pendenza è un toccasana).
+Mi trae anche in inganno l'owner che chiamandolo il "sentiero da Bignole" mi illude sia più semplice di quanto immagino.
+ed invece no, che mazzata allucinante. Non c'è modo di mantenere un buon passo e regolarizzare il fiato, sono 50 minuti di fiatone e polpacci che bruciano.
+Che poi .... Bignole .... Io bignola non sono di sicuro perchè arrivo già da HABT, all massimo sono uno zabaione, o almeno le gambe hanno quella consistenza.
+Ma poi 1000 volte meglio la cresta aerea che quella mazzata di salita!!
+E non pago arrivato all antecima mi trovo su uno sperone roccioso completamente esposto, per raggiungere la vetta, anche lei molto aerea, bisogna disarrampicare un breve passaggio di II completamente esposto.
+
+<img src="img/passaggio.jpg" width=50%>
+
+Da questo log sembra che non mi sia divertito, ma non è affatto così, questa cima soddisfa il bisogno di avventura che HABT non era riuscito a soddisfare. anche perchè era tantissimo che non avevo l'opportunità di fare qualcosa di un po' intenso, quindi lascio sicuramente un FP perchè lo vale.
+Però se siete in dubbio sulla strada da fare .... fate la cresta.
+
+Comunque giungo a GZ, individuo il nascondiglio e la cache "improvvisata" e regalo un logbook con annessa bustina che firmo.
+TFTC, grazie per la piccola breve avventura.
+<img src="img/FTF.jpg" width=40%>
+<img src="img/io_FTF.jpg" width=40%>
+
+Ah, per scendere? ho deciso che i miei pantaloni valevano meno del mio ginocchio e che la pendenza era tale da permettermi di scivolare di culo sull'erba morbida. Mi sono divertito tantissimo a fare il pirla.
