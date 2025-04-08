@@ -25,4 +25,35 @@ Mi rendo però subito conto di un problema, ho lasciato la penna nello zaino, ch
 Di tornare giù non se ne parla e nessuno dei passanti ne ha una, direi che questa volta tocca il fotolog.
 TFTC
 
-Finito di fare le lucertole
+Finito di fare le lucertole scendiamo di nuovo al Mantova dove finalmente riposiamo preparandoci alla cena.
+Qui viviamo quindi il momento forse più bello di tutta l'avventura, siamo tutti amici, in una camera del rifugio, carichissimi ed agitati al pensiero di domani, senza nulla da fare.
+E qui iniziano i discorsi stupidi e goliardici, il "cameratismo" nel vero senso della parola. Per un paio d'ore siamo spensierati, siamo tra amici. 
+Purtroppo il bel momento si conclude nel peggiore dei modi, Filippo si sente male. La quota lo colpisce duramente ed in un'ora ha giramenti di testa e fa fatica a stare in piedi.
+
+Dal rifugio consigliano di scendere subito e così da 5 membri diventiamo 3 ed è una brutta botta morale. Ceniamo ed andiamo a dormire, dopo aver visto un bel tramonto.
+
+#Capanna Margherita
+[log completo della giornata qui](https://github.com/lory9894/geocaches_log/blob/main/06_04_25_capanna_margherita/log.md)
+Capanna Margherita, 4550m, il bivacco più alto d'europa, naturalmente un obbiettivo al contempo impegnativo ma abbastanza semplice da essere fattibile da alpinisti in erba come noi.
+E così per mesi se ne parla, c'è chi ci ha già provato, per qualcuno è il secondo 4000 della sua vita; in generale siamo un bel gruppo vario.
+Per me è la 4a pellata della mia vita ed il mio terzo 4000, questo per sottolineare il fatto che per noi anche se è una cima spesso frequentata è una bella avventura.
+
+Dopo una notte che tutto sommato è stata clemente (nonstante un po'di fastidio dato dalla quota) ci svegliamo alle 4:30 carichissimi, pronti a salire.
+La colazione alle 5:30 è abbondante, fin troppo dato che avrò nausea e appesantimento fino a quota 3800.
+
+In realtà la salita è scarsa di avvenimenti fino al col del lys. Un po' di ghiaccio, un po' di freddo, un po' di vento, un'alba stupenda. Ma nulla di notevole.
+Saliamo un po' lentamente a causa di un membro che non sta benissimo, ma comunque senza particolari difficoltà e finalmente a 4200 spuntiamo al sole ed al vento.
+Li la quota riprende a martellare purtroppo ed io non mi sento bene, non aiuta vedere che la strada adesso scende di 100 e più metri.
+
+Però non sto "abbastanza" male da abbandonare quindi si prosegue e dal vallone fino all'ampia cresta finale sono i 300m più brutti della mia vita.
+Salgo a fatica con un gran mal di testa ed un passo da formica, ma salgo, finalmente mirabile visione la capanna.
+
+Con il vento a 40km/h (che è già "poco" per il luogo) smontiamo le pelli e mettiamo i ramponi, ci leghiamo in cordata e saliamo gli ultimi 50m. devo dire, la parte più divertente di tutta la salita.
+Finalmente siamo arrivati, come spesso capita in queste situazioni le emozioni in cima non sono quelle che ci si aspetta. Siamo felici si, ma abbiamo freddo, siamo stanchi, affamati e con un po' di diarrea dovuta al freddo.Insomma più che gioire vogliamo solo scendere.
+
+Quindi la nostra permanenza in vetta si limita ad una mezz'ora in cui ci vestiamo, facciamo qualche foto, mangiamo un poco ed io firmo la cache.
+Firmo quello che è sicuramente un ripristino (ne avevo portato su uno anche io) e lascio una matita per i prossimi cercatori.
+
+Da lì la discesa è rapida, ad ogni metro di discesa il mal di montagna passa sempre di più e quando finalmente sono a staffal mi sono completamente ripreso, non sono nemmeno così stanco! Infondo abbiamo fatto solo 1200m di dislivello.
+
+Che dire, avventura fantastica e cache spettacolare. Sono molto contento di poterla finalmente loggare. TFTC 
